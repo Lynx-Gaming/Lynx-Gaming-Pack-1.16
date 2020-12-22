@@ -1,1 +1,1 @@
-# Lynx-Gaming-Pack-1.16
+# Lynx Gaming Pack (1.16)
